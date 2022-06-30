@@ -1,4 +1,4 @@
-## Active Accreditation 👋
+## Active Accreditation
 
 <!--
 
